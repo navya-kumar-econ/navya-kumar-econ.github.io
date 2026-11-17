@@ -1,2 +1,2 @@
-# navya-kumar7.github.io
+# navya-kumar-econ.github.io
 Academic website
